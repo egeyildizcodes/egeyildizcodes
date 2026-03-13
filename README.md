@@ -1,4 +1,4 @@
-# Hey, I'm Ege Hamza Yıldız 👋
+# Hey, I'm Ege Yıldız 👋
 
 I'm a high school student from Türkiye who is passionate about building useful, technical, and real-world software projects.
 

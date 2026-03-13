@@ -97,6 +97,7 @@ I’m especially drawn to systems related to:
 
 - GitHub: [@egeyildizcodes](https://github.com/egeyildizcodes)
 - Mail: egehamzay55@gmail.com (To reach my CV, just send an e-mail.)
+- İnstagram: @egyldz
 ---
 
 ## ✨ Motto
